@@ -1,3 +1,3 @@
-# Welcome to my blog
+# I'm Nicole Rae. Welcome to my blog!
 
-I'm glad you are here. I plan to talk about ...
+It's good to see you here. I plan to preach about capybaras.
